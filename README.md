@@ -11,4 +11,4 @@ IWEC: you cospay 4saken, if you accuse me of something without proof, cover me o
 
 PLEASE INT: if you aso LOVE FLUTTER TO BITS, if you like art, if you like my ponys (Please dont be shy! i promise i wont bite!~) if you like Triceratops^^, if you still sleep with stuffies even tho your a teen, if you love sugar.
 
-Please donts: harass my Girlfriend. she is NOT A SOCIAL BUTTERFLY AND DOES NOT LIKE PEOPLE THAT MUCH!!, Dont harass me for something my friends did. i dont need to be in drama. 
+Please donts: int/harass my Girlfriend. she is NOT A SOCIAL BUTTERFLY AND DOES NOT LIKE PEOPLE THAT MUCH!!, Dont harass me for something my friends did. i dont need to be in drama. 
