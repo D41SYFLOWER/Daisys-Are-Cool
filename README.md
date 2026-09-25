@@ -1,7 +1,7 @@
 # MY DNIS, MY IWCS, AND INTS!
 
 
-Heya, if your making me , my friends, or my partner uncomfterable. i will give 3 warnings: 1st: "Hey! your making (me/my friend/my partner) uncomfterable. may you stop? 2nd: hide for 15 minutes. if you keep continuing to bug us after your 15 mins, you get a 24 hr ban.
+Heya, if your making me , my friends, or my partner uncomfterable. i will give 3 warnings: 1st: "Hey! your making (me/my friend/my partner) uncomfterable. may you stop?" 2nd: hide for 15 minutes. if you keep continuing to bug us after your 15 mins, you get a 24 hr block.
 
 Dnis: 
 
