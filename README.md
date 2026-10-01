@@ -1,7 +1,9 @@
 <img width="163" height="23" alt="image" src="https://github.com/user-attachments/assets/405f1496-e5a3-434a-b560-ee4c317fe604" />
 
 
+<img width="231" height="11" alt="image" src="https://github.com/user-attachments/assets/324d9cb3-4c1c-4641-b758-6be4099d19ef" />   Tysm pt awards
 
+ 
 Heya, if your making me , my friends, or my partner uncomfterable. i will give 3 warnings: 1st: "Hey! your making (me/my friend/my partner) uncomfterable. may you stop?" 2nd: hide for 15 minutes. if you keep continuing to bug us after your 15 mins, you get a 24 hr block.
 
 Dnis: 
@@ -13,3 +15,6 @@ IWEC: you cospay 4saken, if you accuse me of something without proof, cover me o
 PLEASE INT: if you aso LOVE FLUTTER TO BITS, if you like art, if you like my ponys (Please dont be shy! i promise i wont bite!~) if you like Triceratops^^, if you still sleep with stuffies even tho your a teen, if you love sugar.
 
 Please donts: int/harass my Girlfriend. she is NOT A SOCIAL BUTTERFLY AND DOES NOT LIKE PEOPLE THAT MUCH!!, Dont harass me for something my friends did. i dont need to be in drama. 
+
+
+just a smol reminder, idk how to check strawpage anons so maybe whisper me your anon, or dm me on dc your art
