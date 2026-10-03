@@ -8,7 +8,7 @@ Heya, if your making me , my friends, or my partner uncomfterable. i will give 3
 
 Dnis: 
 
-19+, Problematic, homophobics, transphobics, toxic pile of shit, qwel supporters, if you c+h without asking, then start an arguement, Rasicsts, dark/ pro shippers, flutter haters. 
+19+, Problematic, homophobics, transphobics, toxic pile of shit, qwel supporters, vivziepop supporters,  if you c+h without asking, then start an arguement, Rasicsts, dark/ pro shippers, flutter haters. 
 
 IWEC: you cospay 4saken, if you accuse me of something without proof, cover me or my friends, if your friends with someone problematic, if your wearing a yt copy-paste, if you ship moonflower, shellvision, etc. 
 
